@@ -19,6 +19,6 @@
 
 ## English level (pre-intermidiate -)
 * **self-study** (essential grammar in use, 1 year).
-* **english time** (individual course, 6 monthы).
+* **english time** (individual course, 6 months).
 * **tutor** (6 month).
 * **courses at my current work** (1 year).
